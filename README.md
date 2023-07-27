@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Hekator-legendary
+- 👀 I’m interested in programing
+- 🌱 I’m currently learning programing
+- 📫 How to reach me hekator0805@gmail.com
